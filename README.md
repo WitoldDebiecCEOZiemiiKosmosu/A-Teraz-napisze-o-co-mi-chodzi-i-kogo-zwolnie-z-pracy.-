@@ -3,3 +3,4 @@ Z pracy wylecą policja, Oszczędzaczykowie i oszczedacze, 112 i hospicja i Pogo
 Mam dosyć podsuchiwania ludzi i ich płaczu mam dość suchania innych i ich płaczu że ktoś znów ich okradł. Dlatego ci ludzie z tych służb wylecą na zbity pysk. 
 Zwalniam z pracy oszczędzaczyków i oszczdzacze energi i oszczedzaczy i całą policje 112 i wojsko z pracy za fery dyscyplinarnie całe rządy hordy tych ludzi zwalniam dziś dyscyp;linarnie z pracy. 
 I gdzieś mam ich wojskowy procesor afer z widzewa i stadionów. 
+Zrobie jak Pan Cejrowski kazała zrobić oni wszyscy idą won na ulice bez prawa do zasiłków i pracy bezdomni do konica życia. Za afery kradzierzy majatków. Mam dość tych afer jako Pan Lord i Magnat. Tak że policji dziękujemy i szukamy do tej pracy uczciwe osoby a nie maszyny z zagarków samsung wach pass. 
