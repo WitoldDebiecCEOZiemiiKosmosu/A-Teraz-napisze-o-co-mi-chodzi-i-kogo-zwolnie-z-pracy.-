@@ -1,0 +1,1 @@
+# A-Teraz-napisze-o-co-mi-chodzi-i-kogo-zwolnie-z-pracy.-
